@@ -1,0 +1,1 @@
+# apisalid.msal.gob.ar-carnetcovid-v2-miargentina-covid-carnet-validar-img.token-yu88ege639nstoigr.cl
